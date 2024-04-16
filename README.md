@@ -5,7 +5,7 @@
 
 *La ciencia de datos se convierte en una necesidad para tomar decisiones más informadas y estratégicas, impulsando la eficiencia, la innovación , el crecimiento y un futuro más sostenible* 🌏♻️
 
-***Te Invito a ver algunos de mis proyectos , desarrollados en mi ruta de aprendizaje ! 👀***
+**Te Invito a ver algunos de mis proyectos , desarrollados en mi ruta de aprendizaje ! 👀**
 
 Sobre mí
 -- 
